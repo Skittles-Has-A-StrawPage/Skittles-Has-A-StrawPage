@@ -1,5 +1,7 @@
 Welcome to My Page!
 
+![Image](https://github.com/user-attachments/assets/4d305025-9c9e-4c58-8066-d597f2bb8fb6)
+
 [straw.page](https://litterallyme.straw.page/)
 
 [strawpage](https://ashivanka.straw.page/) 𝗣𝗔𝗚𝗘 𝟰 𝗠𝗬 𝗢𝗖 !!
@@ -19,6 +21,6 @@ Welcome to My Page!
 
 
 
-![Image](https://github.com/user-attachments/assets/2a64d528-c9cb-4d9c-aac1-10fbd057dfe2)
+![Image](https://github.com/user-attachments/assets/2a64d528-c9cb-4d9c-aac1-10fbd057dfe2) 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
