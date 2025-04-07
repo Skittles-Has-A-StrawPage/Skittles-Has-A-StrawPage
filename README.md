@@ -1,6 +1,6 @@
 Welcome to My Page!
 
-https://litterallyme.straw.page/
+straw.page
 𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!
 
 𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!
