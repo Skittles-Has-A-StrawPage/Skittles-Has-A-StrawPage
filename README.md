@@ -2,7 +2,7 @@ Welcome to My Page!
 
 [straw.page](https://litterallyme.straw.page/)
 
-[strawpage](https://ashivanka.straw.page/) PAGE FOR MY OC !!
+[strawpage](https://ashivanka.straw.page/) 𝗣𝗔𝗚𝗘 𝟰 𝗠𝗬 𝗢𝗖 !!
 
 𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!
 
