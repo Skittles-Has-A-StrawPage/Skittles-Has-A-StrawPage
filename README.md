@@ -1,6 +1,7 @@
 Welcome to My Page!
 
 
-Please go Sign My Atabook
+Go Sign My Atabook!!
 
+Don't forget !!
 Do Your Clicks & Sign the petition for Faith: The Unholy Trinity 
