@@ -3,8 +3,7 @@ Welcome to My Page!
 ![Image](https://github.com/user-attachments/assets/4d305025-9c9e-4c58-8066-d597f2bb8fb6)
 
 [Main StrawPage](https://litterallyme.straw.page/) | [OC StrawPage](https://ashivanka.straw.page/) |  [𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!](https://skittles.atabook.org/)                                                            
-                                                                                          ![Image](https://github.com/user-attachments/assets/2a64d528-c9cb-4d9c-aac1-10fbd057dfe2) 
-
+                                                                                    
 𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!
 - [ ] 𝗗𝗼 𝗬𝗼𝘂𝗿 𝗖𝗹𝗶𝗰𝗸𝘀  [arab.org](https://arab.org/)
 
