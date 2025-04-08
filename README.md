@@ -1,6 +1,6 @@
 Welcome to My Page!
 
-![Image](https://github.com/user-attachments/assets/4d305025-9c9e-4c58-8066-d597f2bb8fb6)
+![Image](https://github.com/user-attachments/assets/4d305025-9c9e-4c58-8066-d597f2bb8fb6) ![image](https://github.com/user-attachments/assets/b3019b4c-89a2-4168-8a78-767c8d43c905) ![gif](https://github.com/user-attachments/assets/b678c5a4-8f1f-4b48-bb81-972dee1f3da8) ![Image](https://github.com/user-attachments/assets/2794d4d6-3ae5-460b-bd8d-38e4d2898684)
 
 [Main StrawPage](https://litterallyme.straw.page/) | [OC StrawPage](https://ashivanka.straw.page/) |  [𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!](https://skittles.atabook.org/)                                                            
                                                                                     
