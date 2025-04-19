@@ -14,3 +14,6 @@
 ![Image](https://github.com/user-attachments/assets/2a64d528-c9cb-4d9c-aac1-10fbd057dfe2) 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
+![](https://komarev.com/ghpvc/?username=skittles-has-a-strawpage)
+
+
