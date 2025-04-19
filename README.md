@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=skittles-has-a-strawpage)
+![](https://komarev.com/ghpvc/?username=skittles-has-a-strawpage&color=ff69b4&label=Entities&style=for-the-badge&base=9)
 
 ![Image](https://github.com/user-attachments/assets/df573126-5fe9-4793-945b-3143146814bb) ![Image](https://github.com/user-attachments/assets/66be78d3-2d72-45e7-8dac-415974854d37) ![Image](https://github.com/user-attachments/assets/7910d71a-720c-4158-b7a1-26446bc5d163) ![Image](https://github.com/user-attachments/assets/f3751847-dfcb-4aa7-9289-7d97efb6769c) ![Image](https://github.com/user-attachments/assets/7327056d-bbdc-497f-9c06-a4c7d7183339) ![Image](https://github.com/user-attachments/assets/2ccd4128-9c86-43b2-8c6f-e5211e9ee61d) ![Image](https://github.com/user-attachments/assets/5a0e42cc-21ec-4e75-bc77-8f728ee1ad59) ![image](https://github.com/user-attachments/assets/c0b9534c-3b00-4afc-9b72-33ec21aa6f36) 
 
