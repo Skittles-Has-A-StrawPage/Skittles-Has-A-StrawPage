@@ -12,7 +12,6 @@
 
 - [ ] [𝗦𝗶𝗴𝗻 𝘁𝗵𝗲 𝗽𝗲𝘁𝗶𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗙𝗮𝗶𝘁𝗵: 𝗧𝗵𝗲 𝗨𝗻𝗵𝗼𝗹𝘆 𝗧𝗿𝗶𝗻𝗶𝘁𝘆](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
 
-![Image](https://github.com/user-attachments/assets/2a64d528-c9cb-4d9c-aac1-10fbd057dfe2) 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
 
