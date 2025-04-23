@@ -7,10 +7,21 @@
 
 [Main StrawPage](https://litterallyme.straw.page/) | [OC StrawPage](https://ashivanka.straw.page/) |  [𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!](https://skittles.atabook.org/)  | [My oomf's GitHub](https://github.com/DEADGUTZ) | [Last.Fm](https://www.last.fm/user/SkittlesisHere)                                         
                                                                                     
-𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!
-- [ ] 𝗗𝗼 𝗬𝗼𝘂𝗿 𝗖𝗹𝗶𝗰𝗸𝘀  [arab.org](https://arab.org/)
+𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!  𝗗𝗼 𝗬𝗼𝘂𝗿 𝗖𝗹𝗶𝗰𝗸s
 
-- [ ] [𝗦𝗶𝗴𝗻 𝘁𝗵𝗲 𝗽𝗲𝘁𝗶𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗙𝗮𝗶𝘁𝗵: 𝗧𝗵𝗲 𝗨𝗻𝗵𝗼𝗹𝘆 𝗧𝗿𝗶𝗻𝗶𝘁𝘆](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
+[arab.org](https://arab.org/)
+
+ [𝗦𝗶𝗴𝗻 𝘁𝗵𝗲 𝗽𝗲𝘁𝗶𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗙𝗮𝗶𝘁𝗵: 𝗧𝗵𝗲 𝗨𝗻𝗵𝗼𝗹𝘆 𝗧𝗿𝗶𝗻𝗶𝘁𝘆](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
+
+ 𝐃𝐍𝐈
+
+   [BASIC criteria](  https://dni-criteria.carrd.co/)
+
+   Proshippers- anything related to it
+
+   HH/HB fans of the Show (idc if you just like certain characters)
+
+   Faith fans
 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
