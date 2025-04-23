@@ -17,6 +17,8 @@
 
    [BASIC criteria](  https://dni-criteria.carrd.co/)
 
+   16 & Under
+
    Proshippers- anything related to it
 
    HH/HB fans of the Show (idc if you just like certain characters)
