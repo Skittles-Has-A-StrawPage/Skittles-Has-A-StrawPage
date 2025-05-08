@@ -21,7 +21,7 @@
 
    Proshippers- anything related to it
 
-   HH/HB fans of the Show (idc if you just like certain characters)
+   HH/HB fans of the Shows (unless if you just like certain characters then idm)
 
    Faith fans
 
