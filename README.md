@@ -5,13 +5,14 @@
  ![Image](https://github.com/user-attachments/assets/7b3788e3-b2e4-4349-b0d2-5bdfb916be4e)
 ![image](https://github.com/user-attachments/assets/b3019b4c-89a2-4168-8a78-767c8d43c905) ![gif](https://github.com/user-attachments/assets/b678c5a4-8f1f-4b48-bb81-972dee1f3da8) ![Image](https://github.com/user-attachments/assets/2794d4d6-3ae5-460b-bd8d-38e4d2898684)
 
-[Main StrawPage](https://litterallyme.straw.page/) | [OC StrawPage](https://ashivankadaryaivanka.straw.page/) | [EelStrawpage](https://eelsareamazing.straw.page/) | [CharacterHub](https://characterhub.com/profile/SkittlesIsHere) |  [𝗚𝗼 𝗦𝗶𝗴𝗻 𝗠𝘆 𝗔𝘁𝗮𝗯𝗼𝗼𝗸!!](https://skittles.atabook.org/)  | [Rentry](https://rentry.co/SkittleIsHere) | [Last.Fm](https://www.last.fm/user/SkittlesisHere) | [LetterBoxd](https://letterboxd.com/SkittlesIsHere/) | [My oomf's GitHub](https://github.com/DEADGUTZ)                                       
+[**ALL LINKS**](https://rentry.co/3v87c3tm)
+
+[Main StrawPage](https://litterallyme.straw.page/)
+[My oomf's GitHub](https://github.com/DEADGUTZ)                                       
                                                                                     
 𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!  𝗗𝗼 𝗬𝗼𝘂𝗿 𝗖𝗹𝗶𝗰𝗸s
 
 [arab.org](https://arab.org/)
-
- [𝗦𝗶𝗴𝗻 𝘁𝗵𝗲 𝗽𝗲𝘁𝗶𝘁𝗶𝗼𝗻 𝗳𝗼𝗿 𝗙𝗮𝗶𝘁𝗵: 𝗧𝗵𝗲 𝗨𝗻𝗵𝗼𝗹𝘆 𝗧𝗿𝗶𝗻𝗶𝘁𝘆](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
 
  𝐃𝐍𝐈
 
@@ -23,7 +24,7 @@
 
    HH/HB fans of the Shows (unless if you just like certain characters then idm)
 
-   Faith fans
+   [Faith fans](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
