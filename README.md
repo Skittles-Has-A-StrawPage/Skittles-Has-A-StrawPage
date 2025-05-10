@@ -19,15 +19,15 @@
 
  𝐃𝐍𝐈
 
-   [BASIC criteria](  https://dni-criteria.carrd.co/)
+   -[BASIC criteria](  https://dni-criteria.carrd.co/)
 
-   16 & Under
+   -16 & Under
 
-   Proshippers- anything related to it
+   -Proshippers- anything related to it
 
-   HH/HB fans of the Shows (unless if you just like certain characters then idm)
+   -HH/HB fans of the Shows (unless if you just like certain characters then idm)
 
-   [Faith fans](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
+   -[Faith fans](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
 
 ![image](https://github.com/user-attachments/assets/7b054349-2712-4ee1-8ded-8454f7849bb8)
 
