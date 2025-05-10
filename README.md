@@ -7,7 +7,8 @@
 
 [**ALL LINKS**](https://rentry.co/AllLinksOfSkittles)
 
-[Main StrawPage](https://litterallyme.straw.page/)
+[Main StrawPage](https://litterallyme.straw.page/) | [Character Hub](https://characterhub.com/my-creations?tab=characters) 
+
 [My oomf's GitHub](https://github.com/DEADGUTZ)                                       
                                                                                     
 𝗗𝗼𝗻'𝘁 𝗳𝗼𝗿𝗴𝗲𝘁 !!  𝗗𝗼 𝗬𝗼𝘂𝗿 𝗖𝗹𝗶𝗰𝗸s
