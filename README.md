@@ -1,4 +1,3 @@
-ITS MY BIRTHDAY !!!! MAY 17!!
 
 ![](https://komarev.com/ghpvc/?username=skittles-has-a-strawpage&color=ff69b4&label=Entities&style=for-the-badge&base=9)
 
