@@ -17,18 +17,8 @@
 [arab.org](https://arab.org/) 
 
 ![Image](https://github.com/user-attachments/assets/1e5444f9-e510-45ec-b87a-e262d053e515)
-
- 𝐃𝐍𝐈
-
-   -[BASIC criteria](  https://dni-criteria.carrd.co/)
-
-   -16 & Under
-
-   -Proshippers- anything related to it
-
-   -HH/HB fans of the Shows (unless if you just like certain characters then idm)
-
-   -[Faith fans](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
+ 𝐃𝐍𝐈 
+ [BASIC criteria](  https://dni-criteria.carrd.co/) | 16 & Under | Proshippers or related to it | HH/HB fans of the Shows (unless if you just like certain characters then idm) | [Faith fans](https://www.change.org/p/remove-anneliese-michel-s-audio-from-faith-the-unholy-trinity)
 
 
 
