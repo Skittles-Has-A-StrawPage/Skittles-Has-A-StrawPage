@@ -8,7 +8,7 @@
 
 [**ALL LINKS**](https://rentry.co/AllLinksOfSkittles)
 
-[Current StrawPage](https://boardingflight180.straw.page/) | [Main Strawpage](https://litterallyme.straw.page/) | [Character Hub](https://characterhub.com/my-creations?tab=characters) 
+[Final Destination Page](https://boardingflight180.straw.page/) | [Main Strawpage](https://litterallyme.straw.page/) | [Character Hub](https://characterhub.com/my-creations?tab=characters) 
 
 [My oomf's GitHub](https://github.com/DEADGUTZ)                                       
                                                                                     
