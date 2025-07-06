@@ -6,7 +6,7 @@
  ![Image](https://github.com/user-attachments/assets/7b3788e3-b2e4-4349-b0d2-5bdfb916be4e)
 ![image](https://github.com/user-attachments/assets/b3019b4c-89a2-4168-8a78-767c8d43c905) ![gif](https://github.com/user-attachments/assets/b678c5a4-8f1f-4b48-bb81-972dee1f3da8) ![Image](https://github.com/user-attachments/assets/2794d4d6-3ae5-460b-bd8d-38e4d2898684)
 
-[**ALL LINKS**](https://rentry.co/AllLinksOfSkittles)
+[**ALL LINKS**](https://rentry.co/AllLinksOfSkittles) [ARTFIGHT](https://artfight.net/~RatBunny___)
 
 [Final Destination Page](https://boardingflight180.straw.page/) | [Main Strawpage](https://litterallyme.straw.page/) | [Character Hub](https://characterhub.com/my-creations?tab=characters) 
 
